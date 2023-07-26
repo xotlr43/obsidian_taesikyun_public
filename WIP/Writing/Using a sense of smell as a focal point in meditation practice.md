@@ -1,0 +1,11 @@
+- External to internal
+- Gentle focal point
+- Observation
+- Non affected by thoughts and emotions
+- Awaring of the awareness
+- Direct experience. no layers of thoughts, emotions, impressions in between you and the aromatic
+- Become the awareness itself
+- Pure consciousness and spacious
+- Ultimate freedom
+- One pointed and inward
+- Center of consciousness
